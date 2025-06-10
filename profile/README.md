@@ -1,6 +1,6 @@
 <h1>👑 v4yc4s1n0 - Krallara Layık Bahis Deneyimi! 👑</h1>
 
-<a href="https://t.me/+vT5xydT9LLBlMzA0" title="v4yc4s1n0 Resmi Telegram Adresi">
+<a href="https://gunceladresbatikan.click/batikan/" title="v4yc4s1n0 Resmi Telegram Adresi">
   <img src="https://i.ibb.co/BtMhhf6/g-venligiris.jpg" alt="v4yc4s1n0 Bahis Platformu" style="max-width: 100%; border: 3px solid #ffd700; border-radius: 15px; box-shadow: 0px 0px 20px rgba(255, 215, 0, 0.6);">
 </a>
 
